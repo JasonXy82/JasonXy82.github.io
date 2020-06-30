@@ -10,3 +10,10 @@ Seit 2011 ist Reynolds mit der Schauspielerin Blake Lively ein Paar. Sie hatten 
 Seit 2018 besitzt Reynolds zusätzlich die US-amerikanische Staatsbürgerschaft.
 
 Seit 2019 ist er Eigner des amerikanischen Mobilfunkanbieters Mint Mobile.
+
+## so jetzt noch ein paar stichpunkte
+
+* 1991 bis 1993 spielte Reynolds in der Nickelodeon-Serie Hillside
+* Seit 2011 ist Reynolds mit der Schauspielerin Blake Lively ein Paar
+* 2008 wurde Reynolds Verlobung mit der Schauspielerin Scar
+* Seit 2019 ist er Eigner des amerikanischen Mobilfunkanbieters Mint Mobile.

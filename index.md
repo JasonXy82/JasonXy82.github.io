@@ -17,3 +17,11 @@ Seit 2019 ist er Eigner des amerikanischen Mobilfunkanbieters Mint Mobile.
 * Seit 2011 ist Reynolds mit der Schauspielerin Blake Lively ein Paar
 * 2008 wurde Reynolds Verlobung mit der Schauspielerin Scar
 * Seit 2019 ist er Eigner des amerikanischen Mobilfunkanbieters Mint Mobile.
+
+
+
+
+
+
+As Ryan Reynold said:
+> Ich bin kein Held!

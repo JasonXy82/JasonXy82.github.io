@@ -25,3 +25,5 @@ Seit 2019 ist er Eigner des amerikanischen Mobilfunkanbieters Mint Mobile.
 
 As Ryan Reynold said:
 > Ich bin kein Held!
+
+<img src="https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse1.mm.bing.net%2Fth%3Fid%3DOIP.-XGjsTBkSVk-GoUpC0UbUgHaHw%26pid%3DApi&f=1">
